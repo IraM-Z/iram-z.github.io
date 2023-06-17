@@ -1,1 +1,3 @@
-Ira Marie Zerrudo || Digital Designer
+Ira Marie Zerrudo
+
+Digital design, fibre arts, and game design.
